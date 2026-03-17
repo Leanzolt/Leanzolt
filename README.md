@@ -20,7 +20,7 @@ My goal is to demonstrate my value through high-quality work. I am not just look
 
 ### 📧 Let's Connect!
 - **Gmail:** [leandrozentenosoliz16@gmail.com](mailto:leandrozentenosoliz16@gmail.com)
-- **YouTube:** [My Technical Channel](https://[www.youtube.com/channel/UCR7GAooyM3WY0SnYzZZmzca](https://www.youtube.com/channel/UCR7GAooyM3WY0SnYzZZmzcA))
+- **YouTube:** [My Technical Channel](https://www.youtube.com/channel/UCR7GAooyM3WY0SnYzZZmzca)
 - 📍 Based in: Cochabamba, Bolivia 🇧🇴
 
 *"Focused on proving my worth through action and secure automation."*
